@@ -1,0 +1,4 @@
+- __Being outside__ 
+- __Learning *new* skills__
+- __solving problems__
+- __Creating *objects* from *ideas*__ 🔨
